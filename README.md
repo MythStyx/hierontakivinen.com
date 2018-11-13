@@ -1,2 +1,0 @@
-# hierontakivinen.com
-hierontakivinen.com
